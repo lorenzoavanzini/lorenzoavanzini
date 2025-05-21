@@ -1,1 +1,4 @@
-Suono come batterista nei Cavana e nei Katana Koala Kiwi. Studio Fisica. Prendo pugni per sport.
+Suono come batterista nei Cavana e nei Katana Koala Kiwi. 
+Studio Fisica. 
+Prendo pugni per sport.
+Presidente dell'associazione Synapser
